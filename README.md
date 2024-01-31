@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Tannr50
-- 👀 I’m interested in skibidi toilet
+- 👀 I’m interested in the stronest battle grounds
+- 
 - 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
